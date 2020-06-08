@@ -6,6 +6,6 @@
         
 ### Gündüz Şubesi
 
->15541049 SAMED DEMİR
+>15541049 Samed DEMİR
 
 >14545027 İhsan SARIYERLİOĞLU
